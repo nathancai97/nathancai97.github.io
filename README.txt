@@ -1,0 +1,1 @@
+Hi, welcome to my profile! Here you can learn more about me and my journey as an engineer. Send me an email or reach out on LinkedIn if you have any inquiries!
